@@ -1,4 +1,4 @@
-## Hey Chabo 👋
+## Hey Mamad 👋
 ### Coding Challenge
 
 Thank you for applying with us and taking on that challenge. Please feel free to reach out to us if you have any question. We value communication over you being stressed out and wasting your precious private time.
